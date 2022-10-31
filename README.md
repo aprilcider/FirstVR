@@ -1,2 +1,2 @@
 # FirstVR
-We are simply. figureing things out
+We are simply. figuring things out
